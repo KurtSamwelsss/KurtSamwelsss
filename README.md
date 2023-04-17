@@ -1,5 +1,11 @@
-### Hi there 👋
-
+### Hi I'm Kurt Samuel Gabo 👋
+Bachelor of Science in information Technology -3rd year
+Central Philippine University
+- ⚡ Sporty
+- ⚡ Kind
+- ⚡ Generous
+- ⚡ Adventurous
+- ⚡ Handsome
 <!--
 **KurtSamwelsss/KurtSamwelsss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
